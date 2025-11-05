@@ -17,7 +17,7 @@
 <p align="center">
   ᗢ Rue </b><br>
   he/him  .  18 . Jul4 </b><br>
-  POC  .  ENG </b><br>
+  POC  .  Fil </b><br>
   </b><br>
   <b> ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ </b><br>
   <b> "Come on, Michael, aim for the love." </b><br>
