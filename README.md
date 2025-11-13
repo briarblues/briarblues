@@ -7,7 +7,7 @@
 
 <p align="center">
   <b> Links:</b><br>
-  <a href="https://x.com/chimeowma">ART</a> ᨐ
+  <a href="q">ART</a> ᨐ
   <a href="">PRONOUNS</a> ᨐ
   <a href="https://melchior.straw.page">STRAWPAGE</a>
   </b><br>
