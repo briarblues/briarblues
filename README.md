@@ -6,9 +6,6 @@
 </p>
 
 <p align="center">
-  <b> Links:</b><br>
-  <a href="q">ART</a> ᨐ
-  <a href="">PRONOUNS</a> ᨐ
   <a href="https://melchior.straw.page">STRAWPAGE</a>
   </b><br>
 <p align=center> 
