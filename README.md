@@ -6,6 +6,8 @@
 </p>
 
 <p align="center">
+ <a href="https://en.pronouns.page/@briarblues">PRONOUNS PAGE</a>
+  ᛝ
   <a href="https://melchior.straw.page">STRAWPAGE</a>
   </b><br>
 <p align=center> 
